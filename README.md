@@ -1,2 +1,2 @@
 # MelbourneClub
-Photos from the Melbourne Club. 36 Collins Street
+Photos and documents from the Melbourne Club. 36 Collins Street.
